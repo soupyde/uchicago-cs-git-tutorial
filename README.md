@@ -1,1 +1,1 @@
-Souptik De
+Souptik De souptikd@uchicago.edu
